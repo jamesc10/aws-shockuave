@@ -1,2 +1,2 @@
-# jamesc10.github.io
+# shockuave historical site
 Portfolio 
